@@ -1,1 +1,1 @@
-I'm a tinkerer and engineer spanning the gap between hardware design and software development. With a knack for clear communication and problem-solving, I enjoy creating efficient, novel, and reliable systems. Let's connect to discuss potential collaborations or explore new opportunities together!
+ye
